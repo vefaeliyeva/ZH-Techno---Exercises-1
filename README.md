@@ -1,1 +1,1 @@
-# ZH-Techno---Exercises-1
+# ZH-Techno-Exercises-1
